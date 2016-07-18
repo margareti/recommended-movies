@@ -4,7 +4,7 @@ The adventures of an eccentric girl who has strange attitudes towards hygiene an
 
 #Comedy - Rus
 ###[Про любовь (2015)](http://www.imdb.com/title/tt4765604)
-Ретана Литвинова, Михаил Ефремов, Равшана Куркова...Хорошие актеры, и хорошо-снятый фильм про любовь. 
+Ретана Литвинова, Михаил Ефремов, Равшана Куркова...Хорошие актеры, и качественно-снятый фильм про любовь. 
 ###[Без границ (2015)](http://www.imdb.com/title/tt5112966/)
 
 #Comedy - US
