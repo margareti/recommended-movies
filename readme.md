@@ -11,6 +11,9 @@ The adventures of an eccentric girl who has strange attitudes towards hygiene an
 ###[Hail, Caesar! (2016)](http://www.imdb.com/title/tt0475290/)
 George Clooney stars in lead role, as an actor who gets kidnapped by communists. 
 
+###[Eddie the Eagle (2016)](http://www.imdb.com/title/tt1083452/)
+The story of Eddie Edwards, the notoriously tenacious British underdog ski jumper who charmed the world at the 1988 Winter Olympics.
+
 #Drama
 ###[Hin und weg (2014) - Germany](http://www.imdb.com/title/tt3273636/)
 Belgium, of all places. What's Belgium got besides chocolates and fries? No matter, this year it was Hannes' and Kiki's turn to choose the destination of their annual bike tour with their..
