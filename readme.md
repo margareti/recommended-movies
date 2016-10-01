@@ -5,6 +5,10 @@ The adventures of an eccentric girl who has strange attitudes towards hygiene an
 ###[Quo vado? (2016) - Italy](http://www.imdb.com/title/tt5290524/)
 Checco is born on the privileged side of life in an Italian small town, with a guaranteed job as a public servant. When a new reformist government vows to cut down on bureaucracy, Checco is forced to accept worsening conditions.
 
+###[Josephine - France](http://www.imdb.com/title/tt2430044/)
+Жозефине почти тридцать и у неё большая попа, которая, по её мнению, является главной причиной отсутствия личной жизни. Девушка отчаянно пытается бороться со своей пятой точкой липосакциями и антицеллюлитными мочалками, но всё тщетно. Единственным утешением является то, что она живёт с Брэдом Питтом — именно так зовут ее кота. 
+
+
 #Comedy - Rus
 ###[Про любовь (2015)](http://www.imdb.com/title/tt4765604)
 Ретана Литвинова, Михаил Ефремов, Равшана Куркова...Хорошие актеры, и качественно-снятый фильм про любовь. 
