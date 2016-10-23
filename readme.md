@@ -5,10 +5,10 @@ The adventures of an eccentric girl who has strange attitudes towards hygiene an
 ###[Quo vado? (2016) - Italy](http://www.imdb.com/title/tt5290524/)
 Checco is born on the privileged side of life in an Italian small town, with a guaranteed job as a public servant. When a new reformist government vows to cut down on bureaucracy, Checco is forced to accept worsening conditions.
 
-###[Josephine - France (2013)](http://www.imdb.com/title/tt2430044/)
+###[Josephine (2013) - France](http://www.imdb.com/title/tt2430044/)
 Жозефине почти тридцать и у неё большая попа, которая, по её мнению, является главной причиной отсутствия личной жизни. Девушка отчаянно пытается бороться со своей пятой точкой липосакциями и антицеллюлитными мочалками, но всё тщетно. Единственным утешением является то, что она живёт с Брэдом Питтом — именно так зовут ее кота. 
 
-###[Le prénom - France (2012)] (http://www.imdb.com/title/tt2179121)
+###[Le prénom (2012) - France] (http://www.imdb.com/title/tt2179121)
 Vincent is about to become a father. At a meeting with childhood friends he announces the name for his future son. The scandalous name ignites a discussion which surfaces unpleasant matters from the past of the group.
 
 
