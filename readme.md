@@ -29,4 +29,8 @@ The story of Eddie Edwards, the notoriously tenacious British underdog ski jumpe
 ###[Hin und weg (2014) - Germany](http://www.imdb.com/title/tt3273636/)
 Belgium, of all places. What's Belgium got besides chocolates and fries? No matter, this year it was Hannes' and Kiki's turn to choose the destination of their annual bike tour with their..
 
+###[Das Leben der Anderen (2006) Germany](http://www.imdb.com/title/tt0405094)
+In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
+
+
 #Arthouse
