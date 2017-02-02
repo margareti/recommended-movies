@@ -32,5 +32,7 @@ Belgium, of all places. What's Belgium got besides chocolates and fries? No matt
 ###[Das Leben der Anderen (2006) Germany](http://www.imdb.com/title/tt0405094)
 In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
 
+###[Brooklyn (2015) UK](http://www.imdb.com/title/tt2381111/)
+An Irish immigrant lands in 1950s Brooklyn, where she quickly falls into a romance with a local. When her past catches up with her, however, she must choose between two countries and the lives that exist within.
 
 #Arthouse
