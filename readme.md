@@ -35,4 +35,10 @@ In 1984 East Berlin, an agent of the secret police, conducting surveillance on a
 ###[Brooklyn (2015) UK](http://www.imdb.com/title/tt2381111/)
 An Irish immigrant lands in 1950s Brooklyn, where she quickly falls into a romance with a local. When her past catches up with her, however, she must choose between two countries and the lives that exist within.
 
-#Arthouse
+#American Movies about Growing Up
+###[The Road Within (2014)](http://www.imdb.com/title/tt2962876)
+A young man with Tourette's Syndrome embarks on a road trip with his recently-deceased mother's ashes.
+###[Me and Earl and the Dying Girl (2015)](http://www.imdb.com/title/tt2582496/)
+High schooler Greg, who spends most of his time making parodies of classic movies with his co-worker Earl, finds his outlook forever altered after befriending a classmate who has just been diagnosed with cancer.
+###[The Spectacular Now (2013)](http://www.imdb.com/title/tt1714206/) /Type: B/
+A hard-partying high school senior's philosophy on life changes when he meets the not-so-typical "nice girl."
